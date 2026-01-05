@@ -1,4 +1,4 @@
-**Name:**	            \t   TALHA KHEDR
+**Name:** TALHA KHEDR
 
 **Student Number:**      2310213518
 
